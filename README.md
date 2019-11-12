@@ -12,7 +12,7 @@
 
 * [https://feiji567.com](https://feiji567.com)
 
-* [https://feiji789.com](https://feiji789.com)
+* [https://feiji678.pw](https://feiji789.com)
 
 * [https://ssr222.com](https://ssr222.com)
 
@@ -21,6 +21,8 @@
 #### 目前大陆无法正常访问地址(需翻墙)
 
 * [https://feiji678.com](https://feiji678.com)
+
+* [https://feiji789.com](https://feiji789.com)
 
 * [https://kxsw88.com](https://kxsw88.com)
 
