@@ -14,10 +14,6 @@
 
 * [https://feiji678.pw](https://feiji789.com)
 
-* [https://ssr222.com](https://ssr222.com)
-
-* [https://ssr333.com](https://ssr333.com)
-
 * [https://ssr.feiji456.xyz](https://ssr.feiji456.xyz)
 
 #### 目前大陆无法正常访问地址(需翻墙)
