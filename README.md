@@ -12,8 +12,6 @@
 
 * [https://feiji567.com](https://feiji567.com)
 
-* [https://ssr.feiji456.xyz](https://ssr.feiji456.xyz)
-
 * [https://web.feiji567.xyz](https://web.feiji567.xyz)
 
 * [https://ssr.feiji789.pw](https://ssr.feiji789.pw)
@@ -27,6 +25,8 @@
 * [https://feiji678.pw](https://feiji789.com)
 
 * [https://kxsw88.com](https://kxsw88.com)
+
+* [https://ssr.feiji456.xyz](https://ssr.feiji456.xyz)
 
 * [https://ssr.feiji789.xyz](https://ssr.feiji789.xyz)
 
