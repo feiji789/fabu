@@ -14,7 +14,7 @@
 
 * [https://ssr.feiji456.xyz](https://ssr.feiji456.xyz)
 
-* [https://ssr.feiji789.xyz](https://ssr.feiji789.xyz)
+* [https://web.feiji567.xyz](https://web.feiji567.xyz)
 
 * [https://ssr.feiji789.pw](https://ssr.feiji789.pw)
 
@@ -27,6 +27,8 @@
 * [https://feiji678.pw](https://feiji789.com)
 
 * [https://kxsw88.com](https://kxsw88.com)
+
+* [https://ssr.feiji789.xyz](https://ssr.feiji789.xyz)
 
 
 #### 地址发布站（建议收藏书签）
